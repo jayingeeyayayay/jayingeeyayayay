@@ -18,3 +18,22 @@ No, I—I wanna taste blood!!!
 
 DDLC FANDOM DNI.  
 
+Guys wtf I'm not a freak. 
+
+
+
+
+
+
+
+
+Why are you still looking? Go away bro.. 
+
+
+
+
+
+
+
+
+<IMG width="474" height="632" alt="image" src="https://github.com/user-attachments/assets/7b70326a-2849-46a0-b785-5f45fdc94a3e" />
