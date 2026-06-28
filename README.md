@@ -20,4 +20,4 @@ DDLC FANDOM DNI.
 
 
 
- 
+ <img src="https://github.com/jayingeeyayayay/jayingeeyayayay/blob/main/IMG_8634.webp?raw=true" width="300">
