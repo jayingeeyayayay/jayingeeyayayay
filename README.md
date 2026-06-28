@@ -13,7 +13,8 @@ No, I—I wanna taste blood!!!
 
    Rblx-:Smalldoggy998
        
- Gamer tag (Xbox XS) : Direwolf7789 
+ Gamer tag (Xbox XS) : Direwolf7789   
+           <img src="https://github.com/jayingeeyayayay/jayingeeyayayay/blob/main/IMG_8635.webp?raw=true" width="300">
 
 DDLC FANDOM DNI.  
 
