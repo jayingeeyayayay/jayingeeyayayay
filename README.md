@@ -6,8 +6,7 @@
 
    
 
-<img src="<img width="401" height="498" alt="image" src="https://github.com/user-attachments/assets/8affc8a6-a53c-4350-82d2-6a3eb9a38248" />
-" width="300">
+<img width="401" height="498" alt="image" src="https://github.com/user-attachments/assets/8affc8a6-a53c-4350-82d2-6a3eb9a38248" />
 
 
 No, I—I wanna taste blood!!!
