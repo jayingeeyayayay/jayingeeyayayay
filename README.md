@@ -17,4 +17,4 @@ No, I—I wanna taste blood!!!
 
 DDLC FANDOM DNI.  
 
-<img src="[your-image-name.png](https://github.com/jayingeeyayayay/jayingeeyayayay/blob/main/IMG_8634.webp?raw=true)" width="300">
+<img src="(https://github.com/jayingeeyayayay/jayingeeyayayay/blob/main/IMG_8634.webp?raw=true)" width="300">
