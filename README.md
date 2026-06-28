@@ -5,3 +5,6 @@
   Dude, in the time I have played on the server with you, you made me neglect my finals, you made me neglect my family, and you made me neglect my sleep. This is more than just a game.
 
    
+
+<img src="<img width="401" height="498" alt="image" src="https://github.com/user-attachments/assets/8affc8a6-a53c-4350-82d2-6a3eb9a38248" />
+" width="300">
