@@ -16,7 +16,7 @@ No, I—I wanna taste blood!!!
  Gamer tag (Xbox XS) : Direwolf7797
            <img src="https://github.com/jayingeeyayayay/jayingeeyayayay/blob/main/IMG_8635.webp?raw=true" width="300">
 
-DDLC FANDOM DNI.  
+
 
    
    
