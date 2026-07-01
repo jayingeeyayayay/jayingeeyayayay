@@ -18,7 +18,9 @@ No, I—I wanna taste blood!!!
 
 DDLC FANDOM DNI.  
 
-Guys wtf I'm not a freak. 
+   
+   
+   Guys wtf I'm not a freak. 
 
 
 
@@ -28,6 +30,13 @@ Guys wtf I'm not a freak.
 
 
 Why are you still looking? Go away bro.. 
+
+
+
+Guys buy me an electric dirt bike, hellcat redeye or gtr 2017 for candy 
+
+
+
 
 
 
