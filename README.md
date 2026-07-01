@@ -29,12 +29,23 @@ No, I—I wanna taste blood!!!
 
 
 
+ 
+ 
+ 
+ 
 Why are you still looking? Go away bro.. 
 
 
 
-Guys buy me an electric dirt bike, hellcat redeye or gtr 2017 for candy 
 
+
+
+
+
+
+
+Guys buy me an electric dirt bike, hellcat redeye or gtr 2017 for candy 
+   
 
 
 
